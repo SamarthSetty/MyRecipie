@@ -1,0 +1,1 @@
+peel the potatoes and then chop them into the shape of french fries and we boil them after 15minutes we take them out and dry them and fianlly fry them in hot oil
